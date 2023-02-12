@@ -1,0 +1,1 @@
+# This is my personal site (Portfolio) designed to guide employers, friends or partners into getting to know me better, my CV, Web PROJECTS, and writings.
